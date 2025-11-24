@@ -1,0 +1,1 @@
+# ideal-orzulari-xususiy-maktabi-uchun-videodars-qollanmalari
